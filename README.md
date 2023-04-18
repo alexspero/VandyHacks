@@ -1,2 +1,2 @@
 # VandyHacks
-yo yo yo omg  hey gloria
+yo yo yo omg
